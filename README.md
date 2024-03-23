@@ -1,2 +1,0 @@
-# fristtry.github.io
- 
